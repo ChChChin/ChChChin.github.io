@@ -1,2 +1,0 @@
-# ChChChin.github.io
-Chin
